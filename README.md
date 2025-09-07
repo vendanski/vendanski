@@ -3,7 +3,7 @@
 ![](https://files.catbox.moe/zyt417.png)
 
 
-$$\color{#a98f6a} she/her $$
+$$\color{#a98f6a} she/they/he $$
 
 $$\color{#a98f6a} INFP-T $$
 
