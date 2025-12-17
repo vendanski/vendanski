@@ -20,3 +20,9 @@
 
 <p align=center> ────────────────────────────────────────────────
 
+<p align=center> Toro / alfredo / barrett
+<p align=center> please dont c+h if ur not my friend i'll get confused ( ´ཀ` )
+<p align=center> make sure you read my pages before interacting !
+<p align=center> yes im anti problematic ships, yes i'll freely block you especially if you're on my dni list
+<p align=center> BEWARE im a yapper and i'll talk your ear off when talking about my interests
+<p align=center> i really love music. like-- REALLY love music and if you recommend me music from my fave artists/genres im gonna hug you
