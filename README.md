@@ -1,4 +1,7 @@
-‎‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://komarev.com/ghpvc/?username=vendanski&label=recruits&base=30292&color=040404)
+<p align="center">
+  <img src="‎![](https://komarev.com/ghpvc/?username=vendanski&label=recruits&base=30292&color=040404)" alt="Spotify Profile" />
+</p>
+
 
 <p align="center">
   <img src="https://files.catbox.moe/alge76.png" />
