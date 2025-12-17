@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="‎![](https://komarev.com/ghpvc/?username=vendanski&label=recruits&base=30292&color=040404)" alt="Spotify Profile" />
+    <img src="https://komarev.com/ghpvc/?username=vendanski&label=recruits&base=30292&color=040404">
 </p>
 
 
