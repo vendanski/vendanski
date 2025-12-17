@@ -1,6 +1,9 @@
 ‎‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://komarev.com/ghpvc/?username=vendanski&label=recruits&base=30292&color=040404)
 
-<img src="...">![](https://files.catbox.moe/alge76.png)
+<p align="center">
+  <img src="https://files.catbox.moe/alge76.png" />
+</p>
+
 
 <p align=center> " yo no he matado a nadie .. últimamente . "
 
