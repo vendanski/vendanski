@@ -2,7 +2,7 @@
 
 <p align=center> " yo no he matado a nadie .. últimamente . "
 
-<p align=center> ──────────────────────── ୨୧ ────────────────────────
+<p align=center> ────────────────────────────────────────────────
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
