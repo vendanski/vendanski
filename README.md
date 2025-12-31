@@ -19,6 +19,14 @@
 </p>
 
 <p align=center> ────────────────────────────────────────────────
+<p align=center> links :
 
+[straw .](https://elpatroncito.straw.page/)
+
+[rentry .](https://rentry.co/elpatroncito)
+
+[ata .](https://vendanski.atabook.org/)
+
+[pronouns .](https://pronouns.cc/@patroncito)
 
 
