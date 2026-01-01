@@ -1,8 +1,4 @@
 <p align="center">
-    <img src="https://files.catbox.moe/r17sv9.png">
-</p>
-
-<p align="center">
     <img src="https://komarev.com/ghpvc/?username=vendanski&label=recruits&base=3029&color=040404">
 </p>
 
