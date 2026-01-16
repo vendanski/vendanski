@@ -8,7 +8,7 @@
 </p>
 
 
-<p align=center> " en efecto esto es fiestaaaa . . "
+<p align=center> " lo cuidan a morir . . "
 
 <p align=center> ────────────────────────────────────────────────
 
