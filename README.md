@@ -8,7 +8,7 @@
 </p>
 
 
-<p align=center> " yo no he matado a nadie .. últimamente . "
+<p align=center> " en efecto es fiestaaaa . . "
 
 <p align=center> ────────────────────────────────────────────────
 
