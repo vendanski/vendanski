@@ -8,7 +8,7 @@
 </p>
 
 
-<p align=center> " del hombre al que hoy le centoooo , muy buena genteeee ! si dan la orden en caliente el hace el trabajooo ! "
+<p align=center> " del hombre al que hoy le cantoooo , muy buena genteeee ! si dan la orden en caliente el hace el trabajooo ! "
 
 <p align=center> ────────────────────────────────────────────────
 
